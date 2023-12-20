@@ -23,7 +23,7 @@
   <br />
 
   <p align="center">
-    Soon
+    <img src="https://355af8ae-c94d-4df1-bbe3-cd0c66b66e81-00-3komtwg7basmz.spock.replit.dev/stats?username=Mrcys" />
   </p>
 </details>
 <br />
