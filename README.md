@@ -11,9 +11,9 @@
 </p>
 <p align="center">
   <samp> 
-    <a href="https://fifix.to" target="_blank">about me</a> /
-    <a href="https://discord.gg/pornhub" target="_blank">discord</a> /
-    <a href="https://x.com/fifix" target="_blank">x</a>
+    <a href="https://instagram.com/fifi.xvx" target="_blank">ig</a> /
+    <a href="https://fifix.to" target="_blank">web</a> /
+    <a href="https://x.com/fifixw" target="_blank">x</a>
   </samp>
 </p>
 <br />
